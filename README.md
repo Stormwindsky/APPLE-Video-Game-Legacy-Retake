@@ -1,2 +1,2 @@
-# APPLE-Video-Game-Legacy-Retake
+# APPLE (Video Game) - Legacy Retake
 coming soon :)
